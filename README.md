@@ -4,7 +4,7 @@
 Also Architect, BIM coordinating . So I wanna connect My architecural knowledge with sports,,, umm Maybe stadium or sports facility or commercial? and Kind of future things about sports and VR,AR.
 I think it is also space, place as virtural, augmented Place. 
 
-- 🌱 I’m currently learning Construction Management about Architecture, Building. So Iwana deal with tremendous amount of information of building. It is called BIM.
+- 🌱 I’m currently working Construction Management about Architecture, Building. So Iwana deal with tremendous amount of information of building. It is called BIM.
 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
